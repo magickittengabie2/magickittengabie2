@@ -6,3 +6,10 @@ i changed my user and it deleted the read me so uhh yeah
 
 <img width="262" height="93" alt="Screenshot 2026-08-01 135803" src="https://github.com/user-attachments/assets/c1732181-24e0-4a36-80a5-e6b42bd7d2a9" />
 wot-
+
+
+
+
+i there with @vampirebitezxx @francis777-fran @ImperialFire-Duo @laggyfahg (●ˇ∀ˇ●) 
+
+ok bye?
