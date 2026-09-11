@@ -4,7 +4,11 @@
 
 
 
-https://github.com/user-attachments/assets/57e25bbd-fef3-4b0f-9ba7-384c156d5c70
+
+
+https://github.com/user-attachments/assets/24add278-03ac-4fed-97c3-63d333676503
+
+
 
 
 
@@ -14,4 +18,3 @@ wip still
 
 when am i gonna do it
 
-credits- @SussSage on youtube
