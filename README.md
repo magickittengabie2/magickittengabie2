@@ -1,12 +1,11 @@
 
+
 <div align="center">
 
 
 
 
-
-i like to cook and i like to bake baking cookies and pies and cake i'm convinced my mama was right so i gonna bake her a berry pie🎉🎉🎉🎉
-
+speaks
 
 
 
@@ -17,7 +16,15 @@ i like to cook and i like to bake baking cookies and pies and cake i'm convinced
 
 
 
-<img width="204" height="220" alt="Screenshot 2026-09-14 080321" src="https://github.com/user-attachments/assets/3825e5b0-1c9a-4818-b9f7-a60f436e3f8c" />
 
 
-i'm so done bro😭
+
+
+
+
+https://github.com/user-attachments/assets/90e27fba-f17c-4332-b26c-89c4e97be3c4
+
+hi were celebrating
+
+
+<img width="48" height="480" alt="0e3ee551876e1ad2a39f89e4adf9168a" src="https://github.com/user-attachments/assets/67c69284-950d-4f3c-90f1-77b5710bea47" /> 
