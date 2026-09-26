@@ -17,7 +17,7 @@ TS IS SO BAD THE FILES WONT EVEN SHOW ANYMORE SO I'M JUST CONFUSED
 
 ok were alive hi this is my 2th time doing this hoping it would turn out gud but my ibis wont work because-
 i have no more storage on this stupid shcool computer so imma take a break bc i took a whole 2 hours drawing 
-that t-bone drawing
+that t-bone drawing I spelled T bone wrong holy shittins
 
 
 <img width="1500" height="500" alt="image (1)" src="https://github.com/user-attachments/assets/90defd6d-a1b6-45a7-a4e1-a87d19be26c5" />
