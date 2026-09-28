@@ -26,9 +26,3 @@ that t-bone drawing I spelled T bone wrong holy shittins
 
 
 
-
-
-
-
-
-
