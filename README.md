@@ -26,3 +26,8 @@ that t-bone drawing I spelled T bone wrong holy shittins
 
 
 
+https://github.com/user-attachments/assets/f45abc23-9bbe-4802-806a-21ced5777ca2
+
+oh my god a sword launcher 
+
+
