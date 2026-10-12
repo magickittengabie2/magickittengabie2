@@ -1,13 +1,13 @@
 
 
 <div align="center">
-re doing this someday guh
-<img width="905" height="610" alt="boy" src="https://github.com/user-attachments/assets/17d7f8d7-8446-466f-9134-d6faeb675d6e" />
+<img width="661" height="377" alt="image-36e4-gradientmap pro" src="https://github.com/user-attachments/assets/d35b5dfd-13dd-47ac-a0e0-570e05a10874" />
+
+
+omg first time toing dividers healing😍😍
 
 
 
-
-grrr💘🏡😭😭😭😈😡🐣🐣🐣🐣🐣🥰🥰🥰😧💘😊
 
 
 
